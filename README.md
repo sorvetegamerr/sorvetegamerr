@@ -9,3 +9,7 @@ Meu nome é Maria Eduarda Oliveira
 ### Você pode entrar em contato comigo 📫
 
 00001116009870SP@al.educacao.sp.gov.br
+
+
+
+![](https://media.tenor.com/QGYOjLUamAkAAAAM/hello-kitty-cafe.gif)
